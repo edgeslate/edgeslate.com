@@ -1,1 +1,1 @@
-# expogrid.com
+# edgeslate.com
